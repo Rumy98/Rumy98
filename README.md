@@ -147,7 +147,7 @@ I'm always interested in connecting with other developers, learners, and technol
 
 * 🐙 **GitHub:** [@Rumy98](https://github.com/Rumy98)
 * 💼 **LinkedIn:** [MEER EHSAN RUMY](https://www.linkedin.com/in/meer-ehsan-rumy-45208a326/)
-* 📧 **Email:** *[MEER EHSAN RUMY](meerehsanrumy@gmail.com)*
+* 📧 **Email:** [MEER EHSAN RUMY](meerehsanrumy@gmail.com/)
 
 ---
 
